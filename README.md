@@ -7,6 +7,6 @@ or
 
 join my discord:
 
-(coming soon)
+(https://discord.gg/FBDHBhJ7WY)
 
 :)
